@@ -35,8 +35,8 @@
 
 ## 🌍 Language Learning
 - 🦉 **Duolingo**: [**@OswaldShilo**](https://www.duolingo.com/profile/oswalshi39300)  
-  *(Add your actual Duolingo username if different)*  
-- Currently learning: **Spanish & French** 🇪🇸🇫🇷
+
+- Currently learning: **German** DE
 
 
 ---
